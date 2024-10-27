@@ -18,7 +18,7 @@
 
 - 📫 How to reach me **laatharv@gmail.com**
 
-- ⚡ Fun fact **I think I am Sexy**
+  
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
